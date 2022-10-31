@@ -1,2 +1,2 @@
-|Id|Category|Title|Description|
+| Id | Category | Title | Description |
 
