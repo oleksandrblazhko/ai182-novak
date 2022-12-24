@@ -1,1 +1,1 @@
-### О цінка гарантованої зрілості безпечного програмного забезпечення за моделлю OWASP SAMM - Software Assurance Maturity Model
+### Огляд та локалізація рекомендацій OWASP  Web Security Testing Guide
