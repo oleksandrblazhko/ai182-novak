@@ -1,4 +1,0 @@
-
-![](https://lh5.googleusercontent.com/G4IMNjZeGkpzies0wEy8FTqWAr4ujufgKUmDOoubKSj45VQKom2zwQRTm5_OaAlo1_l9Mv5lJWHGzjX2HdwLPqYWhD8NIVYF0rQZLWZhAuhDIaMf1c_yVoaB9JMggzDho6DKFdziv1DnRIdWMMeL29iIWTOHwBErfygekzuNnfRtEZ_AOvFepEf5t_F60g)
-
-  

@@ -1,2 +1,0 @@
-
-![](https://lh3.googleusercontent.com/AjitSCgu7wq3y1gC01CF523qK6VWSwp-SgYzvF9J1zGoGtfhdHqdB11P-_jI-gGbFqgB-vVggl8gekTR1ksVywyUAIoXkDljw2KkW4ffKamjqfKMOfC7GXqx1coxZB9fSCGz1x6yyOJDgAPA7C0VJbXoxhogb3sbXTsOqq80PQ8-V5FvDAcZ1Gco7Ijabw)
